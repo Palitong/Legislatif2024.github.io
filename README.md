@@ -1,1 +1,1 @@
-# Legislatif2024.github.io
+# LegislatifGorontalo2024.github.io
